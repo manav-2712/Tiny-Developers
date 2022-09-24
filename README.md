@@ -1,2 +1,2 @@
 # Tiny-Developers
-For this website open net is complusory
+For this website open internet is complusory..
